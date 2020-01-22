@@ -1,0 +1,1 @@
+Trying to add old Miensk plan on modern map.
